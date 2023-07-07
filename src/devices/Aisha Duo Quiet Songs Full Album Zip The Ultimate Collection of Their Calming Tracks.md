@@ -1,0 +1,27 @@
+
+ 
+# Aisha Duo: Quiet Songs - A Relaxing and Ambient Jazz Album
+ 
+If you are looking for a soothing and atmospheric jazz album to unwind and relax, you might want to check out **Aisha Duo: Quiet Songs**. This album features the beautiful sounds of marimba and vibraphone, played by Andrea Dulbecco and Luca Gusella, respectively. The duo creates a harmonious and delicate blend of melodies and rhythms, inspired by classical, ethnic and avant-garde influences.
+ 
+**DOWNLOAD ✶ [https://t.co/mci5TEMLo1](https://t.co/mci5TEMLo1)**
+
+
+ 
+The album consists of 17 tracks, most of them composed by the duo themselves, except for eight pieces by Chick Corea, one by Ralph Towner and one by Ralf Schmid. The tracks range from short and playful to long and meditative, creating a varied and balanced listening experience. Some of the highlights include *Beneath an Evening Sky*, a serene and dreamy tune by Towner; *Despertar*, a lively and upbeat piece by Dulbecco; *Sea, Subsurface*, a mysterious and ambient track by Schmid; and *Blanca*, a gentle and romantic song by Dulbecco.
+ 
+The album also features some guest musicians, such as cellist Marco Decimo and percussionist Michele Locatelli, who add some subtle and tasteful touches to the duo's sound. The album was recorded in September 2003 and released in April 2005 by ObliqSound, a label dedicated to innovative and eclectic music. The album received positive reviews from critics and listeners alike, who praised the duo's skill, creativity and originality.
+ 
+If you want to listen to or download **Aisha Duo: Quiet Songs**, you can find it on various online platforms, such as Spotify[^1^], SoundCloud[^3^] or kit.co[^2^]. You can also buy the CD or vinyl version from Amazon or other online stores. If you enjoy this album, you might also like other albums by Aisha Duo, such as *Live at Casa del Jazz* or *Quiet Songs Remixes*.
+ 
+**Aisha Duo: Quiet Songs** is a perfect album for relaxing, meditating or sleeping. It will transport you to a peaceful and soothing world of sound. Give it a try and let us know what you think!
+ 
+Aisha Duo Quiet Songs download zip file,  Quiet Songs by Aisha Duo full album mp3,  Aisha Duo - Quiet Songs zip free download,  Quiet Songs Aisha Duo album stream online,  Download Aisha Duo Quiet Songs full album 320kbps,  Aisha Duo Quiet Songs album review,  Quiet Songs Aisha Duo zip rar,  Aisha Duo - Quiet Songs full album tracklist,  Quiet Songs by Aisha Duo zip download link,  Aisha Duo Quiet Songs album release date,  Quiet Songs Aisha Duo full album youtube,  Aisha Duo - Quiet Songs zip mega,  Quiet Songs by Aisha Duo album cover art,  Aisha Duo Quiet Songs album lyrics,  Quiet Songs Aisha Duo zip google drive,  Aisha Duo - Quiet Songs full album spotify,  Quiet Songs by Aisha Duo zip mediafire,  Aisha Duo Quiet Songs album genre,  Quiet Songs Aisha Duo full album flac,  Aisha Duo - Quiet Songs zip zippyshare,  Quiet Songs by Aisha Duo album credits,  Aisha Duo Quiet Songs album songs list,  Quiet Songs Aisha Duo full album itunes,  Aisha Duo - Quiet Songs zip 4shared,  Quiet Songs by Aisha Duo album length,  Aisha Duo Quiet Songs album instruments,  Quiet Songs Aisha Duo full album soundcloud,  Aisha Duo - Quiet Songs zip dropbox,  Quiet Songs by Aisha Duo album composer,  Aisha Duo Quiet Songs album producer,  Quiet Songs Aisha Duo full album bandcamp,  Aisha Duo - Quiet Songs zip torrent,  Quiet Songs by Aisha Duo album mood,  Aisha Duo Quiet Songs album awards,  Quiet Songs Aisha Duo full album deezer,  Aisha Duo - Quiet Songs zip vk,  Quiet Songs by Aisha Duo album background,  Aisha Duo Quiet Songs album inspiration,  Quiet Songs Aisha Duo full album amazon music,  Aisha Duo - Quiet Songs zip rapidgator,  Quiet Songs by Aisha Duo album sales,  Aisha Duo Quiet Songs album trivia,  Quiet Songs Aisha Duo full album tidal,  Aisha Duo - Quiet Songs zip uploaded.net,  Quiet Songs by Aisha Duo album meaning,  Aisha Duo Quiet Songs album best songs,  Quiet Songs Aisha Duo full album apple music,  Aisha Duo - Quiet Songs zip turbobit.net
+  
+If you are curious about the duo's background and history, here are some facts you might want to know. Aisha Duo was formed in 1997, when Andrea Dulbecco and Luca Gusella met at the Conservatory of Milan, where they were studying percussion. They discovered their mutual interest in jazz and classical music, and decided to experiment with the combination of marimba and vibraphone. The name Aisha Duo comes from an Arabic female name meaning "alive", which reflects their lively and energetic style.
+ 
+The duo has performed in various festivals and venues around the world, such as the Umbria Jazz Festival, the Montreux Jazz Festival, the Tokyo Jazz Festival, the Carnegie Hall and the Lincoln Center. They have also collaborated with other musicians, such as cellist Marco Decimo and percussionist Glen Velez, who appeared on their album Quiet Songs. Two of their songs, Amanda and Despertar, were selected by Microsoft to be included in the Windows Vista operating system.
+ 
+Aisha Duo's music is influenced by various genres and cultures, such as classical, ethnic, avant-garde, new-age and ambient. They use their instruments to create rich and complex harmonies, melodies and rhythms, while also exploring different sounds and effects. Their music is often described as relaxing, soothing, atmospheric and elegant. They have received praise from critics and fans for their skill, creativity and originality.
+ 8cf37b1e13
+ 
